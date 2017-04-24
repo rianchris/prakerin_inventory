@@ -1,1 +1,0 @@
-# prakerin_inventory
